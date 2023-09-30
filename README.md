@@ -14,12 +14,12 @@
 
 -------------------------------------------------------------------------
 ## WELCOME PACK 140+ 🎁
-#### 🥇: https://mega.nz/folder/An9y1bKJ#iVJZrGF2mIoXfX0sZx9lIg
+#### 🥇: [https://mega.nz/folder/An9y1bKJ#iVJZrGF2mIoXfX0sZx9lIg](https://mega.nz/folder/An9y1bKJ#iVJZrGF2mIoXfX0sZx9lIg)
 ### Backup: 
 #### 🥇: https://catbox.moe/c/78j3ah
 -------------------------------------------------------------------------
 ## WEEK 1 PACK 200+ 🎁
-#### 🥇🥈: https://mega.nz/folder/RztDUCaJ#2uvx0GFKomLHyrcwokA-1w
+#### 🥇🥈: [https://mega.nz/folder/RztDUCaJ#2uvx0GFKomLHyrcwokA-1w](https://mega.nz/folder/RztDUCaJ#2uvx0GFKomLHyrcwokA-1w)
 ### Backup:
 #### 🥇: https://catbox.moe/c/luaiyg
 #### 🥈: https://catbox.moe/c/yhexpu
