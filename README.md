@@ -1,7 +1,9 @@
 # Welcome to The Poor AI Channel
 
-#### 🎁Massive NSFW pack weekly and Fresh Hentai daily. 👉Follow to not miss. 
-#### 💯FREE, never sell arts, only receive donation: [https://ko-fi.com/poorai](https://ko-fi.com/poorai)
+#### 🎁 Massive NSFW pack weekly and Fresh Hentai daily.
+#### 👉 Follow me to not miss them: [https://twitter.com/thePoorAI](https://twitter.com/thePoorAI)
+#### 💯 FREE, never sell arts, only receive donation: [https://ko-fi.com/poorai](https://ko-fi.com/poorai)
+#### 🏪 This page is for backup purposes only. Latest packs are in main page: [https://bit.ly/m/thepoorai](https://bit.ly/m/thepoorai)
 
 <br>
 
@@ -14,24 +16,20 @@
 
 -------------------------------------------------------------------------
 ## WELCOME PACK 140+ 🎁
-#### 🥇: [https://mega.nz/folder/An9y1bKJ#iVJZrGF2mIoXfX0sZx9lIg](https://mega.nz/folder/An9y1bKJ#iVJZrGF2mIoXfX0sZx9lIg)
 ### Backup: 
 #### 🥇: [https://catbox.moe/c/78j3ah](https://catbox.moe/c/78j3ah)
 -------------------------------------------------------------------------
 ## WEEK 1 PACK 200+ 🎁
-#### 🥇🥈: [https://mega.nz/folder/RztDUCaJ#2uvx0GFKomLHyrcwokA-1w](https://mega.nz/folder/RztDUCaJ#2uvx0GFKomLHyrcwokA-1w)
 ### Backup:
 #### 🥇: [https://catbox.moe/c/luaiyg](https://catbox.moe/c/luaiyg)
 #### 🥈: [https://catbox.moe/c/yhexpu](https://catbox.moe/c/yhexpu)
 -------------------------------------------------------------------------
 ## WEEK 2 PACK ???+ 🎁
-#### 🥇🥈:
 ### Backup:
 #### 🥇:
 #### 🥈:
 -------------------------------------------------------------------------
 ## WEEK 3 PACK ???+ 🎁
-#### 🥇🥈:
 ### Backup:
 #### 🥇:
 #### 🥈:
