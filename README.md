@@ -2,7 +2,7 @@
 
 #### 🎁 Massive NSFW pack weekly and Fresh Hentai daily.
 #### 👉 Follow me to not miss them: [https://twitter.com/thePoorAI](https://twitter.com/thePoorAI)
-#### 💯 FREE, never sell arts, only receive donation: [https://ko-fi.com/poorai](https://ko-fi.com/poorai)
+#### 💯 FREE, never sell hentai arts, only receive donation: [https://ko-fi.com/poorai](https://ko-fi.com/poorai)
 #### 🏪 This page is for backup purposes only. Latest packs are in main page: [https://bit.ly/m/thepoorai](https://bit.ly/m/thepoorai)
 
 <br>
