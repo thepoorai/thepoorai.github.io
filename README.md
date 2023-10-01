@@ -9,7 +9,7 @@
 
 ### CONTENT
 #### 🥇(GOLD): Great quality
-#### 🥈(SILVER): Good overall, minor imperfections
+#### 🥈(SILVER): Overall good, minor imperfections
 #### 🌶️(SPICY): Stunning, spicy & super lewd
 
 <br>
